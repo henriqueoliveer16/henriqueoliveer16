@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Henrique Oliveira. :D
-- 👀 I’m interested in programação.
+- 👀 I’m interested in programaar.
 - 🌱 I’m currently learning Pythoooon o>O
 - 📫 How to reach me henriqueoliveira1410gmail-com.
 
